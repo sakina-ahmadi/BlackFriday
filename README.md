@@ -1,2 +1,2 @@
 # BlackFriday
-Black Friday is an informal name for the Friday following Thanksgiving Day in the United States, which is celebrated on the fourth Thursday of November
+The day after the US holiday of Thanksgiving, regarded as the first day of the Christmas shopping season, on which retailers make many special offers.
